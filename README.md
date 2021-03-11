@@ -1,4 +1,10 @@
-### Hi there 👋
+And I will pour out on the house of David and the inhabitants of Jerusalem a spirit of grace and supplication. They will look on me, the one they have pierced, and they will mourn for him as one mourns for an only child, and grieve bitterly for him as one grieves for a firstborn son.
+
+**Zechariah 12:10**
+
+
+
+I'm a foftware developer, who really ought to have learnt this git thing before now. I'm interested in devotional and Bible online applets. God bless, if you're reading this.
 
 <!--
 **Kyle-Johansen/Kyle-Johansen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
